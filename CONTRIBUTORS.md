@@ -1,3 +1,3 @@
 # Contributors
 
-- Tejaswini Atluri — Interview Preparation Guide (2025)
+- Tejaswini Atluri — Useful_Resources_Interview_Prep_10172025.pdf
